@@ -1,4 +1,4 @@
-Works Cited 
+                                                  Works Cited 
 
 Almeleh, Naomi, et al. “Women's Achievement of Empowerment through Activism in the Workplace ...” Sage Journals, Apr. 1993, https://journals.sagepub.com/doi/10.1177/088610999300800103.
 
