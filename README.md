@@ -10,4 +10,6 @@ Freedman, Jeri. Women in the Workplace: Wages, Respect, and Equal Rights. Rosen 
 
 Li, Jo-Yun, et al. “The Role of Strategic Internal Communication in Empowering Female Employees to Cope with Workplace Gender Discrimination.” Corporate Communications: An International Journal, Emerald Publishing Limited, 12 Sept. 2022, https://www.emerald.com/insight/content/doi/10.1108/CCIJ-06-2022-0065/full/html. 
 
+Sexual Harassment in Our Nation’s Workplaces. Office of Enterprise Data and Analytics (OEDA) Data Highlight No. 2. U.S. Equal Employment Opportunity Commission (EEOC), Washington, DC, April 2022.
+
 “Sexual Harassment in the Workplace.” YouTube, YouTube, 7 Dec. 2020, https://www.youtube.com/watch?v=cRJBVfBDbRc. 
